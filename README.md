@@ -13,3 +13,7 @@
 <p align="center"> ╰─..★.────────────────────╯ </p>
 
 <p align="center"> pls read strawpage for more info before interacting . . . </p>
+
+🟢 - paying full attention to ponytown, no need for whisps to int
+🌙 - offtab, pls whisp or theres a big chance i wont see your message
+⛔ - do not disturb, if i have this on it means i only want to int w/ my friends
